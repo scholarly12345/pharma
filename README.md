@@ -26,6 +26,9 @@ https://www.youtube.com/watch?v=DPf-EATqFng
 # Dead Space: Downfall (2008) Original Trailer [FHD]
 https://www.youtube.com/watch?v=xkZYDVgFekc
 
+# LEGO Horizon Adventures - Announce Trailer | PS5 Games
+https://www.youtube.com/watch?v=AqR6phhGHhA
+
 
 
 
