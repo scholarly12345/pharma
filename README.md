@@ -40,3 +40,12 @@ https://www.youtube.com/watch?v=-IJuKT1mHO8
 https://www.youtube.com/watch?v=7_w-fCXg7cE
 # Doom Eternal Official Story Trailer 8k (Remastered with Neural Network AI)
 https://www.youtube.com/watch?v=FMNsvdTnG8w
+
+# Crysis 3 - Nanosuit Trailer
+https://www.youtube.com/watch?v=DgaELI0LxJw
+# Microsoft Flight Simulator - Official DLSS 3 Comparison Trailer | GeForce Beyond
+https://www.youtube.com/watch?v=FxlaJLgtEmg
+# Call of Duty: Modern Warfare III - Gameplay Reveal Trailer | PS5 & PS4 Games
+https://www.youtube.com/watch?v=i3IsLrPeZG8
+# Doom Eternal Official Story Trailer 8k (Remastered with Neural Network AI)
+https://www.youtube.com/watch?v=FMNsvdTnG8w
