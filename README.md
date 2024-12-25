@@ -18,4 +18,9 @@ https://www.youtube.com/watch?v=NnyCWsA6KSI
 # Dark Souls III - Opening Cinematic Trailer | PS4, XB1, PC
 https://www.youtube.com/watch?v=_zDZYrIUgKE
 
+# Dying Light: The Beast — Announcement Trailer
+https://www.youtube.com/watch?v=c50gFkG91jc
+# Anthem Launch Trailer
+https://www.youtube.com/watch?v=DPf-EATqFng
+
 
