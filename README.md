@@ -36,8 +36,7 @@ https://www.youtube.com/watch?v=MmX7a_e65uU
 https://www.youtube.com/watch?v=DgaELI0LxJw
 # Far Cry 6 - Official Reveal Trailer | Ubisoft Forward
 https://www.youtube.com/watch?v=-IJuKT1mHO8
-
-
-
-
-
+# Race Driver GRID trailer
+https://www.youtube.com/watch?v=7_w-fCXg7cE
+# Doom Eternal Official Story Trailer 8k (Remastered with Neural Network AI)
+https://www.youtube.com/watch?v=FMNsvdTnG8w
