@@ -33,6 +33,9 @@ https://www.youtube.com/watch?v=AqR6phhGHhA
 https://www.youtube.com/watch?v=MmX7a_e65uU
 
 # Crysis 3 - Nanosuit Trailer
+https://www.youtube.com/watch?v=DgaELI0LxJw
+# Far Cry 6 - Official Reveal Trailer | Ubisoft Forward
+https://www.youtube.com/watch?v=-IJuKT1mHO8
 
 
 
